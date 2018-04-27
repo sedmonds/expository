@@ -38,8 +38,11 @@ Truly, the Elder Digerati of the “Silver Tsunami” are gaining momentum and t
 
 ### Credits:
 _Scott R. Edmonds_
+
 _GRN 500 Gerontology: An Interdisciplinary Perspective_
+
 _Prof. Anabel Pelham_
+
 _December 19, 2005_
 
 
