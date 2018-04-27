@@ -1,5 +1,5 @@
 # Transcript of Scott Edmonds' Reading at the January 2002 Bored Collective, a monthly spoken word performance at 26 MIX, 3024 Mission St. San Francisco
-_[More Info:](https://www.sfgate.com/bayarea/article/Rave-salon-Club-kids-tell-their-stories-at-2869259.php)_
+_[More Info from SF Gate:](https://www.sfgate.com/bayarea/article/Rave-salon-Club-kids-tell-their-stories-at-2869259.php)_
 
 ## Topic: Race, Music, and Recollections of Personal History
 
